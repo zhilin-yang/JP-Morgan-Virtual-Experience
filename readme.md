@@ -1,7 +1,7 @@
 # Forage: JP Morgan Chase Software Engineering Virtual Experience
 
 ## Certificate of Completion
-<img src="cert.png"/>
+[cert](R5iK7HMxJGBgaSbvk_J.P. Morgan_xLdzYK7u7ewPhCpEa_1680807524277_completion_certificate.pdf)
 
 ## Overview
 
